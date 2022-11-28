@@ -1,1 +1,1 @@
-# Mir-s-World-Clothing-Inc.
+# MirsWorld-Clothing-Inc.
